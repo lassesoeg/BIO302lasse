@@ -1,10 +1,10 @@
 # BIO302lasse
 tips to organizing research
 
-name?
+name? GUNVOR <33333
 
-What kind of scientist do you tell people yo are at dinner parties?
+What kind of scientist do you tell people yo are at dinner parties? Rocket scientist
 
-Favourite ice cream flavour?
+Favourite ice cream flavour? Vanilla 
 
-McDonalds or Burger King?
+McDonalds or Burger King? None :((
