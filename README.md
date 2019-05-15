@@ -7,4 +7,4 @@ What kind of scientist do you tell people yo are at dinner parties?
 
 Favourite ice cream flavour?
 
-McDonalds or BK?
+McDonalds or Burger King?
