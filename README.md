@@ -1,10 +1,10 @@
 # BIO302lasse
 tips to organizing research
 
-name?
+name? Margit
 
-What kind of scientist do you tell people yo are at dinner parties?
+What kind of scientist do you tell people yo are at dinner parties? Biolog
 
-Favourite ice cream flavour?
+Favourite ice cream flavour? cookie dough
 
-McDonalds or Burger King?
+McDonalds or Burger King? ESSO ;) 
