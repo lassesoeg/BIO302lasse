@@ -1,7 +1,7 @@
 # BIO302lasse
 tips to organizing research
 
-Lasse
+name?
 
 What kind of scientist do you tell people yo are at dinner parties?
 
